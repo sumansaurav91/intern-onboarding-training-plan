@@ -1,1 +1,1 @@
-# intern-onboarding-training-plan
+# Internship at GrowYT
